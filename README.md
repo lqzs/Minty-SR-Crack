@@ -1,2 +1,2 @@
-# Minty-SR-Crack
+# Minty SR Crack
 Just type something.
